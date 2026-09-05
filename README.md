@@ -1,3 +1,0 @@
-# VeterinariaHuellitas
-
-# Pueba Alejandro
